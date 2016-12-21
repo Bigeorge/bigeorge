@@ -16,3 +16,5 @@
 5.[4-1,4-2,4-3,4-4](https://pan.baidu.com/share/link?shareid=1006235413&uk=3393506910)
 6.[5-1,5-2,5-3,5-4,5-5,5-6](http://www.jianshu.com/p/8595fcf23880)
 7.[5-7~5-12](http://www.jianshu.com/p/6b7151647e1c)
+8.[6-1,6-2,6-3,7-1,7-2](http://www.jianshu.com/p/3393e7e0762a)
+9.[7-2,7-3,7-4,9-1,9-2,9-3](http://www.jianshu.com/p/5219acaa1d5a)
